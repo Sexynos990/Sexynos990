@@ -1,5 +1,6 @@
 ## Hi there 👋
 Yo im the main mf for eyeless aka boyan...ye the same saddistic mf that enjoyed to annoy halal
+if cans of monster were payment id be a milionare (if being a stipper was counted by others as a job)
 <!--
 **Sexynos990/Sexynos990** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
