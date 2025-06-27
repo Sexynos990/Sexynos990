@@ -4,3 +4,4 @@
 </a>  
 if you see me making a PR just dont forget you're dealing with one of the worst types of users...
 i feel like im falling...going down like Terry Davis (RIP) without TempleOS
+![](https://hit.yhype.me/github/profile?account_id=95072066)
