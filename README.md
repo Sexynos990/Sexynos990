@@ -1,9 +1,9 @@
 ![](https://komarev.com/ghpvc/?username=Sexynos990&style=for-the-badge) 
 
 ![](https://hit.yhype.me/github/profile?account_id=95072066)
-**why are you here? answer in the issues please. i am seeing quite the big jumps of views. I do not find it useful so please go somewhere bette... example [https://github.com/Mesazane]**
+**why are you here? i am seeing quite the big jumps of views. I do not find it useful so please go somewhere bette... example [https://github.com/Mesazane]**
 
 **But oh, how it feels so cold when my dreams wither in fragments of time
 Revealing that this land will die**
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Slackey&weight=100&size=15&pause=1000&color=F70045&background=6A37FF1A&center=true&vCenter=true&width=435&lines=I've+hold+the+fire+within+myself;Years+I've+walked+in+the+coldest+winds;Through+the+deserts+of+sand+and+snow;The+Time+is+passing+and+I+know;That+I'm+wasting+my+life%2C+destroying+my+dreams;I+am+diving+into+the+bottomless+sea;From+sorrow+and+pain+I+find+my+strength;The+more+pain+I+feel%2C+the+more+I+see;Now+I'm+watching+my+life+flowing+in+the+dark;Like+streams+of+fear+running+through+my+heart;And+it's+wearing+me+down+until+I'm+gone;Soon+I'll+join+the+endless+whirls+of+stars)](https://github.com/Why-did-you-click-me?/Good-Bye/Or-welcome...Doesnt-really-matter...I-shall-abandon-this-same-way-i-abandoned-my-old-self.Need-Anything?-Message-me-on-xda-you-know-who-im)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=200&size=19&pause=1000&color=BDBAF7&background=582BAA63&center=true&vCenter=true&width=435&lines=But+oh%2C+how+it+feels+so+cold+when;my+dreams+wither+in+fragments+of+time;Revealing+that+this+land+will+die.)](https://xdaforums.com/m/airachnid.12854072)
